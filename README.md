@@ -1,1 +1,1 @@
-# dekopinda-kota-bengkulu
+# dekopinda-karanganyar
